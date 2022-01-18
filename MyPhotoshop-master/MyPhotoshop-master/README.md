@@ -1,2 +1,0 @@
-# MyPhotoshop
-Work
